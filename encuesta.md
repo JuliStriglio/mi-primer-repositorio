@@ -1,0 +1,1 @@
+Mi expectativa en esta materia es poder adquirir nuevos conocimientos y realizar uun buen trabajo en equipo
